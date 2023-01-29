@@ -1,1 +1,0 @@
-egıtım amaclıdır
